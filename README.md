@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to connect all my knowledge in personal projects and i'm discovering a lot of new things doing that,
 - 💞️ I’m doing my best all days
 - 📫 You can reach me on social midias: https://www.facebook.com/gabriel.tl.7 (here you can see that i'm a big fan of One Piece :p)
-                                         https://www.instagram.com/galmeidarp (and here i really like the beaches)
+                                         https://www.instagram.com/galmeidarp (and here i really like the beaches)                                                       
       To professional midias: I'm in https://www.linkedin.com/in/garpereira/
 
 <!---
